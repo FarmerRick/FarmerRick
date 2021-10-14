@@ -1,4 +1,4 @@
-### Ah don' wear this dagnam hat an' commit to this rural character so you can eat for free while you come of age
+### 👨‍🌾 Ah don' wear this dagnam hat an' commit to this rural character so you can eat for free while you come of age 👨‍🌾
 
 <!--
 **FarmerRick/FarmerRick** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
